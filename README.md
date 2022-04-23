@@ -39,9 +39,9 @@ The following **additional** features are implemented:
 ## Video Walkthrough (GIF)
 
 If you recorded multiple GIFs for all the implemented features, you can add them here:
+![](https://gfycat.com/smugabsolutearabianwildcat)
 ![](https://media.giphy.com/media/4eHYAoHNmrlUdTU95U/giphy.gif)
 
-![](https://gfycat.com/smugabsolutearabianwildcat)
 
 
 ## Reflection Questions
