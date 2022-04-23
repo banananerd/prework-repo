@@ -40,6 +40,7 @@ The following **additional** features are implemented:
 
 If you recorded multiple GIFs for all the implemented features, you can add them here:
 ![](https://media.giphy.com/media/4eHYAoHNmrlUdTU95U/giphy.gif)
+
 ![](https://gfycat.com/smugabsolutearabianwildcat)
 
 
